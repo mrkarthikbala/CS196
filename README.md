@@ -1,3 +1,3 @@
 CS196
 =====
-Tap out or pass out.
+U sk8 or u die br0. sk8 or die.
