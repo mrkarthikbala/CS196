@@ -1,3 +1,3 @@
 CS196
-=====
-U sk8 or u die br0. sk8 or die.
+=======
+We ride together, we die together. Bad boys 4 lyfe.
